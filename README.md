@@ -1,2 +1,0 @@
-CTCKT Website
-Trails
